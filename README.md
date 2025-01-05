@@ -127,6 +127,7 @@ ASSEMBLED VIEW:
 
 
 
+![ex 6 1 drawing-1](https://github.com/user-attachments/assets/ccc0a8b3-5de6-4eb0-b6a5-0947c9e8af8f)
 
 
 
